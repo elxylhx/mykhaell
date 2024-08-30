@@ -8,4 +8,4 @@ Meu nome é Mykhaell
 -Quero ser professor de historia e TI
 -Gosto de gatos
 
-![joia](https://images.app.goo.gl/WWuX11CFFXA1PMMc9)
+![joia](https://tenor.com/search/joinha-gifs)
