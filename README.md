@@ -7,4 +7,5 @@ Meu nome é Mykhaell
 -Infelizmente vivo no sistema horrivel desse governo
 -Quero ser professor de historia e TI
 -Gosto de gatos
-![descrição do GIF](https://images.app.goo.gl/WWuX11CFFXA1PMMc9)
+
+![joia](https://images.app.goo.gl/WWuX11CFFXA1PMMc9)
