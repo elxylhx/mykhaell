@@ -1,6 +1,6 @@
 # mykhaell
 Pega que repositorio maneiro :3
-### Boas vindas ao meu perfil :blue_heart
+### Boas vindas ao meu perfil
 
 Meu nome é Mykhaell
 -Sou estudante de TI por conta propria
